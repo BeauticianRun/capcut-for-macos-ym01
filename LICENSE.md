@@ -1,4 +1,4 @@
-# 
+# CapCut for macOS instant Extension: stream-overlays & proxy-editing is the best CapCut for macOS extension, featuring stream-overlays and proxy-editing. Safe, efficient, and
 
 
 
